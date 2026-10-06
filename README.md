@@ -1,1 +1,1 @@
-# nikita
+<p align="center"</p> <img width="250" height="141" alt="image" src="https://github.com/user-attachments/assets/55013e01-d152-4075-bac1-05a3fad095cd" /> <img width="250" height="141" alt="image" src="https://github.com/user-attachments/assets/1fd88304-2a34-4a0f-a6b7-6bb3951e49ce" />
